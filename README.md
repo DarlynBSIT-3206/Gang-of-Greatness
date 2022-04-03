@@ -18,6 +18,9 @@ The main task of the teacher in the education process should focus on the learni
 ## Significance of the Proposed Study
 
 ## Methods
+This section discusses the practical " Who, What, Where, When, and to what extent" of the research project at hand. More precisely, it refers to the researchers' methodical design of a study in order to ensure that the results are valid and trustworthy and that they address the research's aims and objectives. The method chosen for this study is a descriptive analysis method.
+
+Teachers should be merely focusing on teaching students the main task. As there is allotted time for work things should be accomplished within that given time schedule. Due to unsudden things and extra work they need to accomplish the graph below clearly shows the data that most of the teachers usually do their extra work in the evening. Teachers are very known for “take-home” which indicates the work they bring home to do. This graph clearly states that the 8 hours of work period are not enough for the things they need to accomplish. 
 
 ## Expected Output
 
