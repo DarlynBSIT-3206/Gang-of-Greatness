@@ -16,6 +16,11 @@ There are other elements to consider while evaluating a teacher's abilities. Tea
 The main task of the teacher in the education process should focus on the learning progress and the deliverance of lessons for the competencies of the students. But as we dig deeper into the role of the teacher in the community, we will realize the non-related things a teacher still needs to perform. Encountering teachers having the same issue and complaining about the paper-related compliance they need to submit also takes a huge amount of time they could use in improving the teaching-learning process. 
 
 ## Significance of the Proposed Study
+Through the comprehensive exploration of this study on the real purpose basis of education, The influence of Malpractice and Negligence will be unraveled, emphasized, scrutinized. Moreover, this research will elucidate how this principle prevailed on the Educational System in the Philippines.
+
+In this regard, this study will give awareness to society on how this Malpractice and Negligence affects the Educational System. Moreover, through the analysis made by this study, educational entities and institutions will have a new approach on how to teach and provide high quality education.
+
+In addition to this, the analysis that is presented in this study will convey valuable information for future research and may lead to a more in-depth analysis of it.
 
 ## Methods
 This section discusses the practical " Who, What, Where, When, and to what extent" of the research project at hand. More precisely, it refers to the researchers' methodical design of a study in order to ensure that the results are valid and trustworthy and that they address the research's aims and objectives. The method chosen for this study is a descriptive analysis method.
