@@ -28,9 +28,8 @@ This section discusses the practical " Who, What, Where, When, and to what exten
 Teachers should be merely focusing on teaching students the main task. As there is allotted time for work things should be accomplished within that given time schedule. Due to unsudden things and extra work they need to accomplish the graph below clearly shows the data that most of the teachers usually do their extra work in the evening. Teachers are very known for “take-home” which indicates the work they bring home to do. This graph clearly states that the 8 hours of work period are not enough for the things they need to accomplish. 
 
 ## Expected Output
-The study's purpose is to address the world's most pressing education-related issue. The fundamental objective of the study is to produce expected outcomes for the following topic: Educational System Malpractice and Negligence on the real purpose of education that students and teachers can benefit for the betterment of their way of having quality education.
+The study's purpose is to address the world's most pressing education-related issue. The fundamental objective of the study is to produce expected outcomes for the following topic: Educational System Malpractice and Negligence on the real purpose of education that students and teachers can benefit for the betterment of their way of having quality education.The expected outcomes are:
 
-The expected outcomes are:
 Having the financial means to pay for their child's education
 All students have access to school supplies
 Classrooms are available to accommodate new students and teachers.
