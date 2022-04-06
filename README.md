@@ -38,3 +38,10 @@ Students and teachers will have a higher chance of learning how to use these too
 
 ## References
 https://www.studycountry.com/guide/PH-education.htm#:~:text=The%20education%20system%20of%20the,country%2C%20which%20began%20in%201898.
+
+Abe Moore, In Search of Sustainable Teacher Workload, Medium.com, Jan 23, 2020 https://arbay38.medium.com/in-search-of-sustainable-teacher-workload-part-i-327e766f78ba
+
+Jo Earp, Infographic: A teacher's weekly workload, Teacher Magazine, Feb 14,2020 https://www.teachermagazine.com/au_en/articles/infographic-a-teachers-weekly-workload
+
+https://ffteducationdatalab.org.uk/2019/09/7-key-findings-about-teachers-working-hours/
+
