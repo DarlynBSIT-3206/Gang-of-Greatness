@@ -53,3 +53,6 @@ Teh, M.K., Russo, C.J. (2018). Educational Negligence: Is It a Viable Form of Ac
 
 https://data.un.org/en/iso/ph.html
 
+https://www.journals.uchicago.edu/doi/pdf/10.1086/455838\
+
+Maligalig, Dalisay S., Albert, Jose Ramon G. (2008). Measures for Assessing Basic Education in the Philippines, Philippine Institute for Development Studies (PIDS), Makati City, https://www.econstor.eu/handle/10419/126741
