@@ -1,4 +1,9 @@
 # Project Title: Educational System Malpractice and Negligence on the real purpose basis of education
+## Group Members 
+Joshua Corona
+Zayrah Nicole Dimarucot
+Oville Osorio
+Darlyn Lilivel E Templanza
 ## Introduction
 The history of the Filipino colonial era has had a profound impact on the education system in the Philippines. This history encompasses periods of Spanish, American, and Japanese authority and occupation. The most significant and long-lasting contribution occurred during America's occupation of the nation, which began in 1898. English was selected as the primary language at this time, and the public school system was founded for the first time. It is managed by the newly founded Ministry of Education, which is designed after the American school system.
 
