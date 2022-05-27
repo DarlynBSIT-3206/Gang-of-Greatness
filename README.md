@@ -4,6 +4,8 @@ Joshua Corona
 
 Zayrah Nicole Dimarucot
 
+Janine Gallano
+
 Oville Osorio
 
 Darlyn Lilivel E Templanza
