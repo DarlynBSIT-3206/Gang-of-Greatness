@@ -56,8 +56,6 @@ As some of the people termendously open this topic, most of the teachers agreed 
 
 # VIDEO PRESENTATION
 
-[![Diligent Dingos - Recorded Presentation](https://drive.google.com/file/d/1IWOEN_jqLPHRWZlMo8dOkhb8B-v_DrOG/view?usp=sharing)
-
 [Diligent-Dingos - Recorded Presentation Link](https://drive.google.com/file/d/1IWOEN_jqLPHRWZlMo8dOkhb8B-v_DrOG/view?usp=sharing) 
 
 
