@@ -54,6 +54,12 @@ The study's purpose is to address the world's most pressing education-related is
 
 As some of the people termendously open this topic, most of the teachers agreed to the hardship they are facing to the overwhelming works need to be done by a certain period of time. People tend to see the reality of education versus to the one we actually expect. The numerous task of the teacher made it imposible for them to do the their main job which is to educate human mind. As the expected output of this study researcher's found out that the if the requirements needed to be accomplish cannot be compress or limit, then a proper scheduling of data needed to be done should be attainable and align to the main goal. A proper facing and scheduling of task must be done for the effectivity of the teacher. We might see it too complicated and unattainable, well at some part it might be since we have deadlines need to follow if all the task was designated properly and evenly then task may be easier on both parties. There's no such easy task but if we were able to make adjustment and balance everything things will be more effective more than we think. 
 
+# VIDEO PRESENTATION
+
+[![THE RISING SQUAD - Recorded Presentation](https://user-images.githubusercontent.com/102496565/171981358-1581a282-1a9e-4306-aab7-4232e1c05fa9.PNG)](https://drive.google.com/file/d/1IWOEN_jqLPHRWZlMo8dOkhb8B-v_DrOG/view?usp=sharing)
+
+[THE RISING SQUAD - Recorded Presentation Link](https://drive.google.com/file/d/1d5VQqHAQIkeBmtxkvfgAjyn3MbFQlMaj/view?usp=sharing) 
+
 
 ## References
 https://www.studycountry.com/guide/PH-education.htm#:~:text=The%20education%20system%20of%20the,country%2C%20which%20began%20in%201898.
