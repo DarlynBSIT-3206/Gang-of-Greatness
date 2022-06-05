@@ -56,9 +56,9 @@ As some of the people termendously open this topic, most of the teachers agreed 
 
 # VIDEO PRESENTATION
 
-[![THE RISING SQUAD - Recorded Presentation](https://user-images.githubusercontent.com/102496565/171981358-1581a282-1a9e-4306-aab7-4232e1c05fa9.PNG)](https://drive.google.com/file/d/1IWOEN_jqLPHRWZlMo8dOkhb8B-v_DrOG/view?usp=sharing)
+[![Diligent Dingos - Recorded Presentation](https://drive.google.com/file/d/1IWOEN_jqLPHRWZlMo8dOkhb8B-v_DrOG/view?usp=sharing)
 
-[THE RISING SQUAD - Recorded Presentation Link](https://drive.google.com/file/d/1d5VQqHAQIkeBmtxkvfgAjyn3MbFQlMaj/view?usp=sharing) 
+[Diligent-Dingos - Recorded Presentation Link](https://drive.google.com/file/d/1IWOEN_jqLPHRWZlMo8dOkhb8B-v_DrOG/view?usp=sharing) 
 
 
 ## References
