@@ -7,7 +7,8 @@ Zayrah Nicole Dimarucot
 Janine Gallano
 
 Oville Osorio
-![286129140_507055471205515_7878728971287890134_n]<img src="(https://user-images.githubusercontent.com/102496214/172755788-3baecf1a-9cfe-4e1f-b02f-f8333225905a.jpg)" width="150" height="150"> 
+
+<img src="((https://user-images.githubusercontent.com/102496214/172756906-9f8cb18d-b047-44b0-a898-55441e57ed1a.jpeg)" width="150" height="150"> 
 Darlyn Lilivel E Templanza
 
 ## Introduction
