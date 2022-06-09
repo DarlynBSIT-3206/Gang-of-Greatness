@@ -8,7 +8,6 @@ Janine Gallano
 
 Oville Osorio
 
-<img src="((https://user-images.githubusercontent.com/102496214/172756906-9f8cb18d-b047-44b0-a898-55441e57ed1a.jpeg)" width="150" height="150"> 
 Darlyn Lilivel E Templanza
 
 ## Introduction
